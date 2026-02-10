@@ -17,6 +17,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Davada Zaita family in Paradise
+
+![Image](https://github.com/user-attachments/assets/bfd289c0-198f-4b35-81d1-01f19d9e7b69)
+
+---
+
 **Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
 
 ---
