@@ -1,9 +1,5 @@
 ## Novels Research in AI Commands ⚡
 
----
-
-![Image](https://github.com/user-attachments/assets/06a2fabe-0b00-439f-b84d-debb998357ff)
-
 <!--
 **evolutiatechion/evolutiatechion** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
