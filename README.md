@@ -1,3 +1,11 @@
+---
+
+## The Davada Sousa Zaita Family in Paradise
+
+![Image](https://github.com/user-attachments/assets/bfd289c0-198f-4b35-81d1-01f19d9e7b69)
+
+---
+
 ## Novels Research in AI Commands ⚡
 
 <!--
@@ -14,12 +22,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
----
-
-## The Davada Zaita family in Paradise
-
-![Image](https://github.com/user-attachments/assets/bfd289c0-198f-4b35-81d1-01f19d9e7b69)
 
 ---
 
