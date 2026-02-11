@@ -1,6 +1,6 @@
 ## Davada as River Play - Living in Anywhere
 
-**- Whether it's made of hot paper or an international patent, exceeding the quadrillion mark valued in 100% pure gold, they say that so-and-so, whoever it is, is the richest man in the world. Oh, poor guy, it's a shame they're all being erased.**
+**- Whether it's made of hot paper or an international patent worth more than a quadrillion in pure gold, they say so-and-so, whoever he is, is the richest man in the world. Poor guy, it's a shame that all his stories are being erased.**
 
 **- Somehow, the people who are on the side of my Adonai, I, Davada, we in the people of Halaia, are helped with immeasurable spiritual blessings. Written by Myself in the past and now remembered:** 
 
