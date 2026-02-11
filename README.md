@@ -1,6 +1,6 @@
-![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
+## Davada vs Halaila (Training Combat Fighter - Wing Chun)
 
-## Davada vs Halaila (Training Combat Fighter)
+![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
 
 ---
 
