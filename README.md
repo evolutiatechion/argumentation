@@ -16,11 +16,6 @@
 
 ---
 
-![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
-
-
----
-
 ## Novels Research in AI Commands ⚡
 
 <!--
