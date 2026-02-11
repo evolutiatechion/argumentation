@@ -6,7 +6,13 @@
 
 ---
 
-## Davada vs Halaila (Training Combat Fighter - Wing Chun)
+## Davada vs Halaila (Tobi Training Combat Fighter - Wing Chun)
+
+---
+
+![Image](https://github.com/user-attachments/assets/b098cc17-fa4a-4108-87dd-1b22d582d727)
+
+---
 
 ![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
 
