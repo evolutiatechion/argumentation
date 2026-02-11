@@ -6,7 +6,7 @@
 
 ---
 
-## Davada vs Akadamo (Knife combat training - Wing Chun)
+## Davada vs Akadamo (Knife combat training)
 
 ![Image](https://github.com/user-attachments/assets/e72f2197-f35f-4c85-85cd-56ab6615054a)
 
