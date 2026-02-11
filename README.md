@@ -6,15 +6,13 @@
 
 ---
 
-## Davada and Halaila and Timbao (Old, Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/1dbf6df2-21d6-4840-8999-1237a0610bc4)
+![Image](https://github.com/user-attachments/assets/3046e3e7-f544-4299-b7d8-536a35a90f28)
 
 ---
 
-## Davada Cable and Halaila Sagao (Old, Old Style)
+## Davada and Halaila and Timbao (Old, Old, Old, Old, Old Style)
 
-![Image](https://github.com/user-attachments/assets/3046e3e7-f544-4299-b7d8-536a35a90f28)
+![Image](https://github.com/user-attachments/assets/1dbf6df2-21d6-4840-8999-1237a0610bc4)
 
 ---
 
