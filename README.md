@@ -6,7 +6,15 @@
 
 ---
 
+## Davada Cable and Halaila Sagao (Old, Old Style)
+
 ![Image](https://github.com/user-attachments/assets/3046e3e7-f544-4299-b7d8-536a35a90f28)
+
+---
+
+## Action Commanders (Old, Old Style)
+
+![Image](https://github.com/user-attachments/assets/cbc084f3-6cb3-4dbd-9397-d2b53150d2a1)
 
 ---
 
