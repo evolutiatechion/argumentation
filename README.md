@@ -6,6 +6,12 @@
 
 ---
 
+## Halaila vs kitura (Training Combat Fighter - Wing Chun)
+
+![Image](https://github.com/user-attachments/assets/e9cf270b-74ee-4e36-939d-1a97e3aa86c3)
+
+---
+
 ## Davada vs Halaila (Tobi Training Combat Fighter - Wing Chun)
 
 ---
