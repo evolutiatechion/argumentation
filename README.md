@@ -6,6 +6,12 @@
 
 ---
 
+## Davada vs Akadamo (Knife combat training - Wing Chun)
+
+![Image](https://github.com/user-attachments/assets/e72f2197-f35f-4c85-85cd-56ab6615054a)
+
+---
+
 ## Halaila vs kitura (Training Combat Fighter - Wing Chun)
 
 ![Image](https://github.com/user-attachments/assets/e9cf270b-74ee-4e36-939d-1a97e3aa86c3)
