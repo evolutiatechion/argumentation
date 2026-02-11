@@ -1,14 +1,14 @@
-## Davada vs Halaila (Training Combat Fighter - Wing Chun)
-
-![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
-
----
-
 ## The Davada Sousa Zaita and Family in Paradise
 
 ---
 
 ![Image](https://github.com/user-attachments/assets/3046e3e7-f544-4299-b7d8-536a35a90f28)
+
+---
+
+## Davada vs Halaila (Training Combat Fighter - Wing Chun)
+
+![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
 
 ---
 
