@@ -10,7 +10,7 @@
 
 ---
 
-## Davada and Bomba (Old, Old, Old, Old Style)
+## Davada and Bumba (Old, Old, Old, Old Style)
 
 ![Image](https://github.com/user-attachments/assets/b66064d0-8b53-4015-857d-5b807a514d85)
 
