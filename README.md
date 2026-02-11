@@ -1,10 +1,10 @@
+![Image](https://github.com/user-attachments/assets/e8bf2def-bd16-407b-802e-98406dfba455)
+
+## Davada vs Halaila (Training Combat Fighter)
+
 ---
 
 ## The Davada Sousa Zaita and Family in Paradise
-
----
-
-![Image](https://github.com/user-attachments/assets/24be3202-e582-45f7-8877-3a010a200e46)
 
 ---
 
