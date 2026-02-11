@@ -1,5 +1,13 @@
 ## Davada as River Play - Living in Anywhere
 
+**- Whether it's made of hot paper or an international patent, exceeding the quadrillion mark valued in 100% pure gold, they say that so-and-so, whoever it is, is the richest man in the world. Oh, poor guy, it's a shame they're all being erased.**
+
+**- Somehow, the people who are on the side of my Adonai, I, Davada, we in the people of Halaia, are helped with immeasurable spiritual blessings. Written by Myself in the past and now remembered:** 
+
+**- Psalm 37:25, written by King Davada, which says: "I was young and now I am old, yet I have never seen the righteous forsaken or their children begging bread." The passage emphasizes Adonai's faithfulness in providing for and sustaining those who live righteously and trust in Him.**
+
+---
+
 ![Image](https://github.com/user-attachments/assets/f01a0edd-5191-4ead-8c71-e0163a8242e7)
 
 
