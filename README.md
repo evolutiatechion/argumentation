@@ -8,6 +8,11 @@
 
 ![Image](https://github.com/user-attachments/assets/3046e3e7-f544-4299-b7d8-536a35a90f28)
 
+---
+
+## Davada Tambor - Living in Portugal
+
+![Image](https://github.com/user-attachments/assets/ab1423c8-2a0a-4d43-8f42-e00f8d783133)
 
 ---
 
