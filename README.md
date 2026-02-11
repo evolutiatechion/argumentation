@@ -10,6 +10,12 @@
 
 ---
 
+## Davada and BoB Dick (Old Style)
+
+![Image](https://github.com/user-attachments/assets/48df2f8d-061d-4ad4-b504-5c77ac194184)
+
+---
+
 ## Davada and Halaia (Old Style)
 
 ---
