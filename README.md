@@ -2,9 +2,6 @@
 
 ![Image](https://github.com/user-attachments/assets/f01a0edd-5191-4ead-8c71-e0163a8242e7)
 
----
-
-## The Davada Sousa Zaita and Family in Paradise
 
 ---
 
