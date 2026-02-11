@@ -6,6 +6,12 @@
 
 ---
 
+## Davada and Halaila (Old Style)
+
+![Image](https://github.com/user-attachments/assets/5af1fbca-00ff-44b5-b15a-a6e27895b28a)
+
+---
+
 ## Davada vs Akadamo (Knife combat training)
 
 ![Image](https://github.com/user-attachments/assets/e72f2197-f35f-4c85-85cd-56ab6615054a)
