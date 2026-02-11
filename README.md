@@ -11,7 +11,7 @@
 ---
 
 
-## the Ultimate Davada in Titanzinho - "Vassoura, Vassoura, Vassoura" (Old, Old, Old, Old, Old Style)
+## The Ultimate Davada in Titanzinho (Old, Old, Old, Old, Old Style)
 
 ![Image](https://github.com/user-attachments/assets/5285e6c6-864c-43c8-aa76-ce155dfda544)
 
