@@ -10,7 +10,9 @@
 
 ---
 
-## Davada and Halaia(Old Style)
+## Davada and Halaia (Old Style)
+
+---
 
 ![Image](https://github.com/user-attachments/assets/9b62ec4e-0137-4d51-aee3-556e5149af4e)
 
