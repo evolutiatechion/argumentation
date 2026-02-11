@@ -2,6 +2,8 @@
 
 **- Erase or not erase the opponents favored by the black devil, the very black devil, regarding Natinho's issue???**
 
+**- Erase everything, absolutely everything.**
+
 **- Whether it's made of hot paper or an international patent worth more than a quadrillion in pure gold, they say so-and-so, whoever he is, is the richest man in the world. Poor guy, it's a shame that all his stories are being erased.**
 
 **- Somehow, the people who are on the side of my Adonai, I, Davada, we in the people of Halaia, are helped with immeasurable spiritual blessings. Written by Myself in the past and now remembered:** 
