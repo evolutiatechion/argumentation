@@ -18,6 +18,12 @@
 
 ## Davada and Halaila (Old Style)
 
+![Image](https://github.com/user-attachments/assets/b0a4dfd9-291a-4510-8103-154f2181bd75)
+
+---
+
+## Davada and Halaila (Old Style)
+
 ![Image](https://github.com/user-attachments/assets/5af1fbca-00ff-44b5-b15a-a6e27895b28a)
 
 ---
