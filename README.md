@@ -22,6 +22,12 @@
 
 ---
 
+## Davada and Halaila (Old Style)
+
+![Image](https://github.com/user-attachments/assets/5b286db0-17d4-40fd-9c4d-1195d511bec3)
+
+---
+
 ## Novels Research in AI Commands ⚡
 
 <!--
