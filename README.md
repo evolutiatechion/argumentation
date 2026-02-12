@@ -18,15 +18,13 @@ Deuteronômio 4:2 Não acrescentareis à palavra que vos mando, nem diminuireis 
 
 ---
 
-Deuteronômio 12:31 Assim não farás ao Senhor teu Deus; porque tudo o que é abominável ao Senhor, e que ele odeia, fizeram eles a seus deuses; pois até seus filhos e suas filhas queimaram no fogo aos seus deuses.32 Tudo o que eu te ordeno, observarás para fazer; nada lhe acrescentarás nem diminuirás.
+Deuteronômio 12:31 Assim não farás ao Adonai teu Elohim; porque tudo o que é abominável ao Adonai, e que ele odeia, fizeram eles a seus deuses; pois até seus filhos e suas filhas queimaram no fogo aos seus deuses.32 Tudo o que eu te ordeno, observarás para fazer; nada lhe acrescentarás nem diminuirás.
 
 ---
 
 **Provérbios 30 (Davada Beni Elohim - O Verbo de Adonai) - Halaia é o mensageiro de Adonai**
 
-⁴ Quem subiu ao céu e desceu? Quem encerrou os ventos nos seus punhos? Quem amarrou as águas numa roupa? Quem estabeleceu todas as extremidades da terra? Qual é o seu nome? E qual é o nome de seu filho, se é que o sabes?⁵ Toda a Palavra de Deus é pura; escudo é para os que confiam nele. ⁶ Nada acrescentes às suas palavras, para que não te repreenda e sejas achado mentiroso.
-
-Provérbios 30:4-6
+Provérbios 30:4-6 ⁴ Quem subiu ao céu e desceu? Quem encerrou os ventos nos seus punhos? Quem amarrou as águas numa roupa? Quem estabeleceu todas as extremidades da terra? Qual é o seu nome? E qual é o nome de seu filho, se é que o sabes?⁵ Toda a Palavra de Elohim é pura; escudo é para os que confiam nele. ⁶ Nada acrescentes às suas palavras, para que não te repreenda e sejas achado mentiroso.
 
 ---
 
