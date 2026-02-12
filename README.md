@@ -6,6 +6,32 @@
 
 ---
 
+**Não esperem eu ser politizado ou novamente militarizado nas forças armadas do conflito imediato.** 
+
+---
+
+#### Isaías 52:7: How welcome on the mountain Are the footsteps of the herald Announcing happiness, Heralding good fortune, Announcing victory, Telling Zion, “Your God reigns!”
+
+#### Isaías 52:7 Celebra a chegada de mensageiros trazendo boas novas de paz, salvação e o retorno do reinado de Adonai a Sião. 
+
+---
+
+**Davada = The Voice = O Verbo de Elohim, e eu o verbo me fiz carne e habitei entre os mortais**
+
+---
+
+**Se querem a paz devem estarem preparados para a guerra.**
+
+---
+
+**Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
+
+**Pergunta que não quer calar !!! Cade ???**
+
+**Jesus Black, Iesus Cristum File Dei, Jesus Cristo, e Yeshua HaMaschia ???**
+
+---
+
 **Busca de todas as passagens a respeito da minha volta (Davada Melech) e de Halaia Hanabi (Eliyahu Hanavi)**
 
 ---
@@ -40,32 +66,6 @@ For the Israelites shall go a long time without king and without officials, with
 אַחַ֗ר יָשֻׁ֙בוּ֙ בְּנֵ֣י יִשְׂרָאֵ֔ל וּבִקְשׁוּ֙ אֶת־יְהֹוָ֣ה אֱלֹהֵיהֶ֔ם וְאֵ֖ת דָּוִ֣יד מַלְכָּ֑ם וּפָחֲד֧וּ אֶל־יְהֹוָ֛ה וְאֶל־טוּב֖וֹ בְּאַחֲרִ֥ית הַיָּמִֽים׃ {פ}
 
 Afterward, the Israelites will turn back and will seek the ETERNAL their God and David their king—and they will thrill over GOD and over God’s bounty in the days to come. 
-
----
-
-**Não esperem eu ser politizado ou novamente militarizado nas forças armadas do conflito imediato.** 
-
----
-
-#### Isaías 52:7: How welcome on the mountain Are the footsteps of the herald Announcing happiness, Heralding good fortune, Announcing victory, Telling Zion, “Your God reigns!”
-
-#### Isaías 52:7 Celebra a chegada de mensageiros trazendo boas novas de paz, salvação e o retorno do reinado de Adonai a Sião. 
-
----
-
-**Davada = The Voice = O Verbo de Elohim, e eu o verbo me fiz carne e habitei entre os mortais**
-
----
-
-**Se querem a paz devem estarem preparados para a guerra.**
-
----
-
-**Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
-
-**Pergunta que não quer calar !!! Cade ???**
-
-**Jesus Black, Iesus Cristum File Dei, Jesus Cristo, e Yeshua HaMaschia ???**
 
 ---
 
