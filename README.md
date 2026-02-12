@@ -6,7 +6,7 @@
 
 ---
 
-**O grande conflito de nosso tempo é entre Razinho e Natinho.**
+**O grande conflito de nosso tempo é entre Razinho Perere e Natinho Banach**
 
 ---
 
