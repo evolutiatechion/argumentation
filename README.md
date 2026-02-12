@@ -16,7 +16,7 @@
 
 **Existem muitos texto tendencisos favorecidos por Hasatan**
 
-**Exemplo: Septuaginta e Vulgata Latina, faltam varias passagem do texto em Hebraico**
+**Exemplo: Septuaginta e Vulgata Latina, faltam varias passagens do texto em Hebraico**
 
 **Como investigar este fato: Antigo Testamento Poliglota (Hebraico - Grego - Ingles - Português)**
 
