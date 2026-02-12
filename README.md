@@ -12,6 +12,10 @@
 
 ---
 
+**Leia na sua Biblia** 
+
+---
+
 https://www.sefaria.org/search?q=david&tab=text&tpathFilters=Tanakh&tvar=1&tsort=relevance
 
 ---
