@@ -2,6 +2,10 @@
 
 ---
 
+**- Psalm 37:25, written by King Davada, which says: "I was young and now I am old, yet I have never seen the righteous forsaken or their children begging bread." The passage emphasizes Adonai's faithfulness in providing for and sustaining those who live righteously and trust in Him.**
+
+---
+
 ![Image](https://github.com/user-attachments/assets/f01a0edd-5191-4ead-8c71-e0163a8242e7)
 
 ---
@@ -11,18 +15,6 @@
 ---
 
 ![Image](https://github.com/user-attachments/assets/9b62ec4e-0137-4d51-aee3-556e5149af4e)
-
----
-
-**- Erase or not erase the opponents favored by the black devil, the very black devil, regarding Natinho's issue???**
-
-**- Erase everything, absolutely everything.**
-
-**- Whether it's made of hot paper or an international patent worth more than a quadrillion in pure gold, they say so-and-so, whoever he is, is the richest man in the world. Poor guy, it's a shame that all his stories are being erased.**
-
-**- Somehow, the people who are on the side of my Adonai, I, Davada, we in the people of Halaia, are helped with immeasurable spiritual blessings. Written by Myself in the past and now remembered:** 
-
-**- Psalm 37:25, written by King Davada, which says: "I was young and now I am old, yet I have never seen the righteous forsaken or their children begging bread." The passage emphasizes Adonai's faithfulness in providing for and sustaining those who live righteously and trust in Him.**
 
 ---
 
