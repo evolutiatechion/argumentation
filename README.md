@@ -1,5 +1,7 @@
 ## Living in next time (Yerushalayim Shel Zahav - City Of David)
 
+**Davada = The Voice = O Verbo de Elohim**
+
 ---
 
 **Se querem a paz devem estarem preparados para a guerra.**
