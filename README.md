@@ -16,7 +16,7 @@
 
 **Existem muitos textos que são tendenciosos a favor de Ha-Satan.**
 
-**Exemplos: Septuaginta e Vulgata Latina, faltam varias passagens do texto em Hebraico**
+**Exemplos: A Septuaginta e a Vulgata Latina omitem diversas passagens do texto hebraico**
 
 **Como investigar este fato: Antigo Testamento Poliglota (Hebraico - Grego - English - Português)**
 
