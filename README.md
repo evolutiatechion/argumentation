@@ -6,7 +6,7 @@
 
 ---
 
-## O fim da Tradição da TORAH Oral (Contada e Passada de Pai para Filho) ???
+## O fim da Tradição da TORAH Oral ??? (Contada e Passada de Pai para Filho) 
 
 ---
 
