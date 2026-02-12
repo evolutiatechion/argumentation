@@ -26,6 +26,10 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/fefe7f40-f2f4-47f1-918d-9aac3e0e8bdd)
+
+---
+
 **Malach de Adonai - Davada Beni Elohim**
 
 ---
