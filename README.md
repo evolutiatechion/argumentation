@@ -18,6 +18,10 @@
 
 ---
 
+**Isaías 2:4 ARA: Ele julgará entre os povos e corrigirá muitas nações; estas converterão as suas espadas em relhas de arados e suas lanças, em podadeiras; uma nação não levantará a espada contra outra nação, nem aprenderão mais a guerra.**
+
+---
+
 **Não acrescentareis e nem diminuirás**
 
 ---
