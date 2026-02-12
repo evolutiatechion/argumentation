@@ -20,15 +20,17 @@
 
 ---
 
+**Obs0: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força.**
+
+**Obs1: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido.**
+
+---
+
 **Zona Azul (Área permitida para nudistas), Profeta Azul e Garota Azul**
 
 ---
 
 **Isaías 20:3 Então disse o Adonai: Assim como o meu servo Isaías andou três anos nu e descalço, por sinal e prodígio sobre o Egito e sobre a Etiópia,**
-
----
-
-**Obs: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força.**
 
 ---
 
