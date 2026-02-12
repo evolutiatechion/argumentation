@@ -20,7 +20,7 @@
 
 ---
 
-**Qualquer pessoa que não viva de acordo com a lei estabelecida é um criminoso. (Mente, Rouba, Mata, ...)**
+**Qualquer pessoa que não viva de acordo com a lei estabelecida é um criminoso. (Mente, Rouba, Mata, Etc...)**
 
 ---
 
