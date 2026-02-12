@@ -6,7 +6,7 @@
 
 ---
 
-## O Fim da Tradição da TORAH Oral ??? 
+## O Fim da Tradição Oral da Torá ???
 
 ---
 
