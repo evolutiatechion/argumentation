@@ -28,6 +28,12 @@
 
 ---
 
+## Os vestígios dos ensinamentos de NATO BANACH no Dava Planet, passado oral para outros planos
+
+![Image](https://github.com/user-attachments/assets/629b1f95-8b62-44f7-bf5d-8db847051590)
+
+---
+
 **Não espere que eu me politize ou me militarize novamente nas forças armadas do conflito eminente.** 
 
 ---
