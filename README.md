@@ -1,6 +1,6 @@
 ## Living in next time (Yerushalayim Shel Zahav - City Of David)
 
-**Davada = The Voice = O Verbo de Elohim**
+**Davada = The Voice = O Verbo de Elohim, e eu o verbo me fiz carne e habitei entre os mortais**
 
 ---
 
