@@ -2,7 +2,11 @@
 
 ---
 
-**Aviso aos desavisados: Não esperem eu ser politizado ou novamente militarizado nos forcas armadas do conflito imediato** 
+**Aviso aos desavisados:**
+
+---
+
+**Não esperem eu ser politizado ou novamente militarizado nos forcas armadas do conflito imediato** 
 
 ---
 
