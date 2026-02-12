@@ -40,7 +40,7 @@
 
 ---
 
-## O sustento dos sacerdotes da tribo de levi
+## O sustento dos sacerdotes da tribo de levi (Vivendo em Eretz Israel)
 
 ---
 
