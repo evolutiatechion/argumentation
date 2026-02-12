@@ -26,6 +26,12 @@
 
 ---
 
+**O Mensageiro no princípio do fim dos dias (Miketes Haiamin)** 
+
+**Malaquias 4:5,6 ⁵ Eis que eu vos enviarei o profeta Elias, antes que venha o grande e terrível dia de Adonai; ⁶ E ele converterá o coração dos pais aos filhos, e o coração dos filhos a seus pais; para que eu não venha, e fira a terra com maldição.**
+
+---
+
 **Não acrescentareis e nem diminuirás**
 
 ---
