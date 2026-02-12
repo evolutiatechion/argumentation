@@ -30,6 +30,8 @@
 
 ## Vestígios dos ensinamentos de NATO BANACH, transmitidos oralmente para outros planos.
 
+**- O que se sabe é que as evidências provêm apenas de uma única folha de papiro..**
+
 ![Image](https://github.com/user-attachments/assets/af188756-c623-4c56-a115-413f2a0904c0)
 
 ---
