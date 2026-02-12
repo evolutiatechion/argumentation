@@ -14,7 +14,7 @@
 
 **Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan.** 
 
-**Existem muitos textos que são tendenciosos a favor de Ha Satan.**
+**Existem muitos textos que são tendenciosos a favor de Ha-Satan.**
 
 **Exemplos: Septuaginta e Vulgata Latina, faltam varias passagens do texto em Hebraico**
 
