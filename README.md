@@ -20,6 +20,10 @@
 
 ---
 
+**Qualquer pessoa que não viva de acordo com a lei estabelecida é um criminoso. (Mente, Rouba, Mata, ...)**
+
+---
+
 **Obs0: Levítico 19:19 — Guarde os meus estatutos. Não misture as espécies. Não plante sementes de duas espécies em seu campo, nem use roupas de dois tipos diferentes de tecido na mesma fabricação.**
 
 **Obs1: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido;**
@@ -28,7 +32,7 @@
 
 ---
 
-**Exemplo: grãos geneticamente modificados; roupas confeccionadas com varios tipos de tecidos (falsificadas). Algodão e Sintetico**
+**Exemplo: grãos geneticamente modificados; roupas confeccionadas com vários tipos de tecidos (falsificadas). Algodão e Sintetico**
 
 ---
 
