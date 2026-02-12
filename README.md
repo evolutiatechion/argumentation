@@ -20,6 +20,10 @@
 
 ---
 
+**Torah (LEI) é o mesmo que a instrução de Adonai Elhoim para os seus Filhos Amados (Os Benei Elohim)**
+
+---
+
 **Qualquer pessoa que não viva de acordo com a lei estabelecida é um criminoso. (Mente, Rouba, Mata, Etc...)**
 
 ---
