@@ -4,6 +4,12 @@
 
 ![Image](https://github.com/user-attachments/assets/2d83174c-2167-4a82-87d4-43aeba1b8956)
 
+---
+
+**- JPS Tanakh 1917 - 1 Then he brought me back the way of the outer gate of the sanctuary, which looketh toward the east; and it was shut. 2And the LORD said unto me: ‘This gate shall be shut, it shall not be opened, neither shall any man enter in by it, for the LORD, the God of Israel, hath entered in by it; therefore it shall be shut. 3As for the prince, being a prince, he shall sit therein to eat bread before the LORD; he shall enter by the way of the porch of the gate, and shall go out by the way of the same.’** 
+
+---
+
 **A Porta Dourada em Jerusalém. A Porta Dourada é o único portão oriental do Monte do Templo. Está vedada desde a Idade Média, em cumprimento de uma profecia. Na tradição judaica, este é o portão por onde o Messias entrará em Jerusalém, e sugere-se que Suleiman, o Magnífico, tenha selado a Porta Dourada para impedir a entrada do Messias.**
 
 ----
