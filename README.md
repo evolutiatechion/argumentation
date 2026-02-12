@@ -10,15 +10,15 @@
 
 ---
 
-**O assassinato de Urias e o adultério com Mariana Zaita: pura contradição de Ha-Satan (O Oponente);** 
+**- O assassinato de Urias e o adultério com Mariana Zaita: pura contradição de Ha-Satan (O Oponente);** 
 
-**Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan;** 
+**- Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan;** 
 
-**Existem muitos textos que são tendenciosos a favor de Ha-Satan;**
+**- Se isso fosse verdade, eu, Davada, e Mariana Zaita teríamos sido contraditos por Ha-Satan;**
 
-**Exemplos de Tradução: A Septuaginta e a Vulgata Latina omitem diversas passagens do texto hebraico;**
+**- Exemplos de Tradução: A Septuaginta e a Vulgata Latina omitem diversas passagens do texto hebraico;**
 
-**Como devemos investigar esse fato? Antigo Testamento poliglota (hebraico - grego - english - português).**
+**- Como devemos investigar esse fato? Antigo Testamento poliglota (hebraico - grego - english - português).**
 
 ---
 
