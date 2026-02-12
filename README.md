@@ -10,6 +10,22 @@
 
 ---
 
+**Ninguem pode morrer pelo pecado de ninguem!!!** 
+
+---
+
+Deuteronômio 24:16 ARA (Almeida Revista e Atualizada)
+
+Os pais não serão mortos em lugar dos filhos, nem os filhos, em lugar dos pais; cada qual será morto pelo seu pecado.
+
+---
+
+Ezequiel 18:20 ARA (Almeida Revista e Atualizada)
+
+A alma que pecar, essa morrerá; o filho não levará a iniquidade do pai, nem o pai, a iniquidade do filho; a justiça do justo ficará sobre ele, e a perversidade do perverso cairá sobre este.
+
+---
+
 #### Isaías 52:7: How welcome on the mountain Are the footsteps of the herald Announcing happiness, Heralding good fortune, Announcing victory, Telling Zion, “Your God reigns!”
 
 ---
