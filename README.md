@@ -2,19 +2,21 @@
 
 ---
 
-![Image](https://github.com/user-attachments/assets/b3c3ee6e-3bcb-4dcb-b67a-37624f8a0c39)
-
----
-
-![Image](https://github.com/user-attachments/assets/6d0624de-8f6e-413a-8659-063bbdd28063)
-
----
-
 **Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
 
 **Pergunta que não quer calar !!! Cade ???**
 
 **Jesus Black, Iesus Cristum File Dei, Jesus Cristo, e Yeshua HaMaschia ???**
+
+---
+
+---
+
+![Image](https://github.com/user-attachments/assets/b3c3ee6e-3bcb-4dcb-b67a-37624f8a0c39)
+
+---
+
+![Image](https://github.com/user-attachments/assets/6d0624de-8f6e-413a-8659-063bbdd28063)
 
 ---
 
