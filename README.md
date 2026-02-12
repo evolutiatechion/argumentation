@@ -20,6 +20,16 @@
 
 ---
 
+**Zona Azul (Área permitida para nudistas), Profeta Azul e Garota Azul**
+
+**Isaías 20:3 Então disse o Adonai: Assim como o meu servo Isaías andou três anos nu e descalço, por sinal e prodígio sobre o Egito e sobre a Etiópia,**
+
+---
+
+**Oséias 3:1-5 Adonai Elohim falou de novo comigo e disse: — Vá e ame uma mulher liberal, uma mulher que tem muitos namorados. Ame-a assim como eu amo o povo de Israelita, embora eles adoram outros deuses e lhes ofereçam bolos de passas. 2 Fui e pagei o dote pela a mulher por quinze barras de prata e cento e cinquenta quilos de cevada. 3 Eu disse: — Por muito tempo, você vai esperar por mim. Durante esse tempo continue a nomar livremente, não se entregue a um so namorado. E eu também esperarei por você.**
+
+---
+
 **Mariana Zaita (Bati Sheva Eliakim - A sétima filha de Joaquim)  vivia na casa da família de Urias, os hititas; ele foi para a guerra como qualquer outro soldado israelita.** 
 
 ---
