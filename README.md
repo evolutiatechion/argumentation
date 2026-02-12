@@ -14,9 +14,9 @@
 
 **Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan.** 
 
-**Existem muitos texto tendencisos favorecidos por Hasatan**
+**Existem muitos textos que são tendenciosos a favor de Ha Satan.**
 
-**Exemplo: Septuaginta e Vulgata Latina, faltam varias passagens do texto em Hebraico**
+**Exemplos: Septuaginta e Vulgata Latina, faltam varias passagens do texto em Hebraico**
 
 **Como investigar este fato: Antigo Testamento Poliglota (Hebraico - Grego - Ingles - Português)**
 
