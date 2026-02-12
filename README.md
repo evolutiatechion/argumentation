@@ -2,7 +2,7 @@
 
 ---
 
-**"Mashiach Bo" (do hebraico, "O Messias vem" ou "está vindo") refere-se à crença judaica na chegada futura de um líder ungido, descendente do Rei Davi, que trará paz mundial, reconstruirá o Templo em Jerusalém e reunirá o povo de Israel. É um pilar de fé que anuncia uma era de perfeição, sabedoria e conhecimento espiritual para toda a humanidade.**
+**"Mashiach Bo" (do hebraico, "O Messias vem" ou "está vindo") refere-se à crença judaica na chegada futura de um líder ungido, descendente do Rei Davada (Ele como, Ele Mesmo - Junto com Halaia), que trará paz mundial, reconstruirá o Templo em Jerusalém e reunirá o povo de Israel. É um pilar de fé que anuncia uma era de perfeição, sabedoria e conhecimento espiritual para toda a humanidade.**
 
 ---
 
