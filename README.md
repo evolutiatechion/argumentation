@@ -10,6 +10,14 @@
 
 ---
 
+**Pergunta que não quer calar !!! Cade ???**
+
+**Jesus Black, Iesus Cristum File Dei, Jesus Cristo, e Yeshua HaMaschia ???**
+
+**A nova ordem da paz mundial do razinho da questão do natinho ???**
+
+---
+
 **Não acrescentareis e nem diminuirás**
 
 ---
@@ -81,10 +89,6 @@ Daniel 9
 ---
 
 **Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
-
-**Pergunta que não quer calar !!! Cade ???**
-
-**Jesus Black, Iesus Cristum File Dei, Jesus Cristo, e Yeshua HaMaschia ???**
 
 ---
 
