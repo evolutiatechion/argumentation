@@ -40,6 +40,14 @@
 
 ---
 
+**Juiz de Pacificação - Clarificando as Ideias:** 
+
+**- Relacionamento Fechado (Amarelo): Casamento, Noivo ou Namorado;**
+
+**- Relacionamento Aberto (Azul): Relacionamento Estável (Coabitação entre as partes)**
+
+---
+
 **Obs0: Levítico 19:19 — Guarde os meus estatutos. Não misture as espécies. Não plante sementes de duas espécies em seu campo, nem use roupas de dois tipos diferentes de tecido na mesma fabricação.**
 
 **Obs1: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido;**
