@@ -40,11 +40,11 @@
 
 ---
 
-## O sustento dos sacerdotes da tribo de leviatas
+## O sustento dos sacerdotes da tribo de levi
 
 ---
 
-**Números 18:8-32 O Adonai Elohim disse a Arão:  Agora estou lhe dando todas as ofertas especiais que forem trazidas a mim e que não forem queimadas como sacrifício. Eu dou essas ofertas a você e aos seus descendentes como aquela parte a que vocês têm direito para sempre. 9 Das coisas mais sagradas e que não forem queimadas você receberá o seguinte: as ofertas de cereais, as ofertas para tirar pecados e as ofertas para tirar a culpa. Tudo o que for trazido a mim como oferta sagrada pertence a você e aos seus filhos. 10 Você comerá essas coisas num lugar sagrado, e somente os homens poderão comê-las. E serão uma coisa sagrada para você.**
+**Números 18:8-32 O Adonai Elohim disse a Arão:  Agora estou lhe dando todas as ofertas especiais que forem trazidas a mim e que não forem queimadas como sacrifício. Eu dou essas ofertas a você e aos seus descendentes como aquela parte a que vocês têm direito para sempre. 9 Das coisas mais sagradas e que não forem queimadas você receberá o seguinte: as ofertas de cereais, as ofertas para tirar pecados e as ofertas para tirar a culpa. Tudo o que for trazido a mim como oferta sagrada pertence a você e aos seus filhos. 10 Você comerá essas coisas num lugar sagrado, e somente os homens poderão comê-las. E serão uma coisa sagrada para você...**
 
 ---
 
@@ -58,7 +58,7 @@
 
 ---
 
-**Juiz de Pacificação - Clarificando as Ideias:** 
+## Juiz de Pacificação - Clarificando as Ideias: 
 
 **- Relacionamento Fechado (Amarelo): Casamento, Noivo ou Namorado;**
 
