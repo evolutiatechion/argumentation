@@ -18,6 +18,10 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/3350b954-f96b-45f3-9d3f-faa23fd4ba9b)
+
+---
+
 ## Novels Research in AI Commands ⚡
 
 <!--
