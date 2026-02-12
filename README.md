@@ -20,12 +20,11 @@
 
 ---
 
-**Torah (LEI) é o mesmo que a instrução de Adonai Elohim para os seus Filhos Amados (Os Benei Elohim)**
+**Torah (LEI) é o mesmo que a instrução de Adonai Elohim para os seus Filhos Amados (Os Benei Elohim).**
 
 ---
 
-**Os Filhos de Ra, tem uma outra instrução a seguir**
-
+**Os Filhos de Rá, tem uma outra instrução a seguir**
 
 ---
 
