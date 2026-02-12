@@ -22,6 +22,8 @@
 
 **Zona Azul (Área permitida para nudistas), Profeta Azul e Garota Azul**
 
+---
+
 **Isaías 20:3 Então disse o Adonai: Assim como o meu servo Isaías andou três anos nu e descalço, por sinal e prodígio sobre o Egito e sobre a Etiópia,**
 
 ---
