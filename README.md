@@ -1,5 +1,11 @@
 ## Davada as River Play - Living in Anywhere
 
+---
+
+![Image](https://github.com/user-attachments/assets/48df2f8d-061d-4ad4-b504-5c77ac194184)
+
+---
+
 **- Erase or not erase the opponents favored by the black devil, the very black devil, regarding Natinho's issue???**
 
 **- Erase everything, absolutely everything.**
@@ -9,145 +15,6 @@
 **- Somehow, the people who are on the side of my Adonai, I, Davada, we in the people of Halaia, are helped with immeasurable spiritual blessings. Written by Myself in the past and now remembered:** 
 
 **- Psalm 37:25, written by King Davada, which says: "I was young and now I am old, yet I have never seen the righteous forsaken or their children begging bread." The passage emphasizes Adonai's faithfulness in providing for and sustaining those who live righteously and trust in Him.**
-
----
-
-![Image](https://github.com/user-attachments/assets/f01a0edd-5191-4ead-8c71-e0163a8242e7)
-
-
----
-
-![Image](https://github.com/user-attachments/assets/bfd289c0-198f-4b35-81d1-01f19d9e7b69)
-
----
-
-![Image](https://github.com/user-attachments/assets/3046e3e7-f544-4299-b7d8-536a35a90f28)
-
----
-
-## Davada Tambor - Living in Portugal
-
-![Image](https://github.com/user-attachments/assets/ab1423c8-2a0a-4d43-8f42-e00f8d783133)
-
----
-
-## Davada in Family - Holidays in Portugal
-
-![Image](https://github.com/user-attachments/assets/71c7db79-fcad-4923-8a0a-f9c3d0715941)
-
----
-
-## Davada in Family - Holidays in Portugal
-
-![Image](https://github.com/user-attachments/assets/0b37b118-2089-49f5-add0-f67a464b5ec1)
-
----
-
-## The Ultimate Davada in Titanzinho (Old, Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/5285e6c6-864c-43c8-aa76-ce155dfda544)
-
----
-
-## Davada as Jonas Brothers in Titanzinho (Old, Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/7f10abe2-eb88-4081-a423-944a0df901bd)
-
----
-
-## Davada and Brothers in Titanzinho (Old, Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/734853f1-698c-4d10-bed4-893d3e6bc8bc)
-
----
-
-## Davada and Brothers in Hawaii (Old, Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/9c065409-f2c7-4f56-a418-00bb243653d9)
-
----
-
-## Davada and Halaila and Timbao (Old, Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/1dbf6df2-21d6-4840-8999-1237a0610bc4)
-
----
-
-## Action Commanders (Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/cbc084f3-6cb3-4dbd-9397-d2b53150d2a1)
-
----
-
-## Action Commanders (Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/003dbd45-d6ce-4f84-8b5e-5746e0943bf5)
-
----
-
-## Davada Cable and Halaila Sagao (Old, Old Style)
-
----
-
-![Image](https://github.com/user-attachments/assets/21710274-a816-4522-a9f0-bce67bac926c)
-
----
-
-## Davada and Halaila (Old, Old, Old, Old Style)
-
-![Image](https://github.com/user-attachments/assets/cdb7ee35-fd51-4471-999a-00df8fa41a4d)
-
----
-
-## Davada and Halaila (Old, Old, Old Style)
-
----
-
-![Image](https://github.com/user-attachments/assets/3350b954-f96b-45f3-9d3f-faa23fd4ba9b)
-
----
-
-## Davada and BoB Dick (Old Style)
-
-![Image](https://github.com/user-attachments/assets/48df2f8d-061d-4ad4-b504-5c77ac194184)
-
----
-
-## Davada and Halaia (Old Style)
-
----
-
-![Image](https://github.com/user-attachments/assets/9b62ec4e-0137-4d51-aee3-556e5149af4e)
-
----
-
-## Davada (Old Style)
-
-![Image](https://github.com/user-attachments/assets/141d9196-ef81-49fb-9024-8f687bddf7dc)
-
----
-
-## Davada (Old Style)
-
-![Image](https://github.com/user-attachments/assets/fd02ce6a-62d3-4f39-b6c4-ac3be622d31f)
-
----
-
-## Davada and Halaila (Old Style)
-
-![Image](https://github.com/user-attachments/assets/b0a4dfd9-291a-4510-8103-154f2181bd75)
-
----
-
-## Davada and Halaila (Old Style)
-
-![Image](https://github.com/user-attachments/assets/5b286db0-17d4-40fd-9c4d-1195d511bec3)
-
----
-
-## Davada and Halaila (Old Style)
-
-![Image](https://github.com/user-attachments/assets/5af1fbca-00ff-44b5-b15a-a6e27895b28a)
 
 ---
 
