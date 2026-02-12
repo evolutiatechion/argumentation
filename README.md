@@ -2,13 +2,15 @@
 
 ---
 
+**Se queres, a paz devem estar preparo para a guerra.***
+
+---
+
 **Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
 
 **Pergunta que não quer calar !!! Cade ???**
 
 **Jesus Black, Iesus Cristum File Dei, Jesus Cristo, e Yeshua HaMaschia ???**
-
----
 
 ---
 
