@@ -12,7 +12,7 @@
 
 **Assassinato de Urias e Adulterio com Mariana Zaita: Pura contradição de Ha-Satan:** 
 
-**Se isto fosse verdade eu e mariana teríamos sido contraditados por Ha-Satan** 
+**Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan** 
 
 ---
 
