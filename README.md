@@ -6,7 +6,7 @@
 
 ---
 
-![Image](https://github.com/user-attachments/assets/70252435-be36-4d73-96cd-426325e278bb)
+![Image](https://github.com/user-attachments/assets/6d0624de-8f6e-413a-8659-063bbdd28063)
 
 ---
 
