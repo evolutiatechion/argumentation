@@ -10,7 +10,7 @@
 
 ---
 
-## TORAH Oral - Contada e Passada de Pai para Filho
+## Torá Oral - Contada e transmitida de pai para filho
 
 ---
 
