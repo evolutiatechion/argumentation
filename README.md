@@ -4,6 +4,8 @@
 
 ---
 
+## Isaías 52:7 Celebra a chegada de mensageiros trazendo boas novas de paz, salvação e o retorno do reinado de Deus a Sião. 
+
 **Se querem a paz devem estarem preparados para a guerra.**
 
 ---
