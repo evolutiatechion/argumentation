@@ -2,7 +2,7 @@
 
 ---
 
-**Se queres, a paz devem estar preparo para a guerra.***
+**Se queres, a paz devem estar preparo para a guerra.**
 
 ---
 
