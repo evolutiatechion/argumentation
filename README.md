@@ -20,6 +20,10 @@
 
 ---
 
+**Mariana Zaira vivia na casa da família de Urias, os hititas; ele foi para a guerra como qualquer outro soldado israelita.** 
+
+---
+
 ![Image](https://github.com/user-attachments/assets/4e93dd28-7fac-4175-a540-ad0c2d2679c4)
 
 ---
