@@ -10,7 +10,7 @@
 
 ---
 
-**Malach do Adonai - Davada Beni Elohim**
+**Malach de Adonai - Davada Beni Elohim**
 
 Zacarias 3:1 ¹ E ele mostrou-me o sumo sacerdote Josué, o qual estava diante do anjo do Adonai, e Satanás estava à sua mão direita, para se lhe opor. ² Mas o Malach disse a Satanás: O Adonai te repreenda, ó Satanás, sim, o Adonai, que escolheu Jerusalém, te repreenda; não é este um tição tirado do fogo? ³ Josué, vestido de vestes sujas, estava diante do anjo. ⁴ Então respondeu, aos que estavam diante dele, dizendo: Tirai-lhe estas vestes sujas. E a Josué disse: Eis que tenho feito com que passe de ti a tua iniquidade, e te vestirei de vestes finas. ⁵ E disse eu: Ponham-lhe uma mitra limpa sobre a sua cabeça. E puseram uma mitra limpa sobre a sua cabeça, e vestiram-no das roupas; e o Malach de Adonai estava em pé. ⁶ E o Malach do Adonai protestou a Josué, dizendo: ⁷ Assim diz o Adonai dos Exércitos: Se andares nos meus caminhos, e se observares a minha ordenança, também tu julgarás a minha casa, e também guardarás os meus átrios, e te darei livre acesso entre os que estão aqui. **
 ---
