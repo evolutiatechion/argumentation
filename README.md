@@ -6,6 +6,14 @@
 
 ---
 
+## O fim da Tradição da TORAH Oral (Contada e Passada de Pai para Filho) ???
+
+---
+
+**Sim, a Bíblia relata que Moisés escreveu as palavras de Elohim, as leis e os mandamentos em um livro, conhecido como o "Livro da Aliança" ou a "Lei" (Êxodo 24:4, 12, Deuteronômio 31:9) - Ele registrou os mandamentos recebidos no Sinai e as instruções divinas para o povo de Israel, incluindo o relato da batalha contra Amaleque (Êxodo 17:14). Agora está em vigor a TORAH ESCRITA**
+
+---
+
 **O grande conflito de nosso tempo é entre Razinho Perere e Natinho Banach**
 
 ---
