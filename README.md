@@ -10,7 +10,7 @@
 
 ---
 
-**Não esperem que eu me politize ou me militarize novamente nas forças armadas do conflito imediato.** 
+**Não espere que eu me politize ou me militarize novamente nas forças armadas do conflito eminente.** 
 
 ---
 
