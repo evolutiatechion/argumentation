@@ -20,7 +20,7 @@ Hosea 3:4-5
 
 כִּ֣י ׀ יָמִ֣ים רַבִּ֗ים יֵֽשְׁבוּ֙ בְּנֵ֣י יִשְׂרָאֵ֔ל אֵ֥ין מֶ֙לֶךְ֙ וְאֵ֣ין שָׂ֔ר וְאֵ֥ין זֶ֖בַח וְאֵ֣ין מַצֵּבָ֑ה וְאֵ֥ין אֵפ֖וֹד וּתְרָפִֽים׃ 
 
-For the Israelites shall go a long time without king and without officials, without sacrifice and without cult pillars, and without ephod and oracle idols. 
+For the Israelites shall go a long time without king and without officials, without sacrifice and without cult, and without ephod and profets. 
 
 אַחַ֗ר יָשֻׁ֙בוּ֙ בְּנֵ֣י יִשְׂרָאֵ֔ל וּבִקְשׁוּ֙ אֶת־יְהֹוָ֣ה אֱלֹהֵיהֶ֔ם וְאֵ֖ת דָּוִ֣יד מַלְכָּ֑ם וּפָחֲד֧וּ אֶל־יְהֹוָ֛ה וְאֶל־טוּב֖וֹ בְּאַחֲרִ֥ית הַיָּמִֽים׃ {פ}
 
