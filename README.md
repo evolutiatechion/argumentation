@@ -32,7 +32,7 @@ A alma que pecar, essa morrerá; o filho não levará a iniquidade do pai, nem o
 
 **Iesus Cristum File Dei, Jesus Cristo, Black Jesus**
 
-**Razinho Salvatori Victorium, Zé Pilantra, Nego do Bore ou Cabaret** 
+**Razinho Salvatori Victorium, Zé Pilantra, Nego do Bore ou Cabaret...** 
 
 ---
 
