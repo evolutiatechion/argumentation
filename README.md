@@ -18,7 +18,7 @@ Deuteronômio 4:2 Não acrescentareis à palavra que vos mando, nem diminuireis 
 
 ---
 
-Deuteronômio 12:31 Assim não farás ao Adonai teu Elohim; porque tudo o que é abominável ao Adonai, e que ele odeia, fizeram eles a seus deuses; pois até seus filhos e suas filhas queimaram no fogo aos seus deuses.32 Tudo o que eu te ordeno, observarás para fazer; nada lhe acrescentarás nem diminuirás.
+Deuteronômio 12:31 Assim não farás ao Adonai teu Elohim; porque tudo o que é abominável ao Adonai, e que ele odeia, fizeram eles a seus deuses; pois até seus filhos e suas filhas queimaram no fogo aos seus deuses. 32 Tudo o que eu te ordeno, observarás para fazer; nada lhe acrescentarás nem diminuirás.
 
 ---
 
