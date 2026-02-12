@@ -1,5 +1,7 @@
 ## Davada as Ha-Maschiach Bo and Ha-Laila Ha-Nabi 
 
+![Image](https://github.com/user-attachments/assets/a4b2812d-6f81-4e17-a7e6-7ea9ebb7fdc2)
+
 ----
 
 ## Living in next time (Yerushalayim Shel Zahav - City Of David)
