@@ -10,15 +10,15 @@
 
 ---
 
-**Livraria On-Line - Busca por (David and Eliyahu or Elias)**
-
----
-
-**Leia na sua Biblia** 
+**Livraria On-Line - Busca por: (David and Eliyahu or Elias)**
 
 ---
 
 https://www.sefaria.org/search?q=david&tab=text&tpathFilters=Tanakh&tvar=1&tsort=relevance
+
+---
+
+**Leia na sua Biblia** 
 
 ---
 
