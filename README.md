@@ -6,6 +6,10 @@
 
 ---
 
+**O Grande Conflito dos Dias Atuais é Entre O Razinho e O Natinho**
+
+---
+
 **Não esperem que eu me politize ou me militarize novamente nas forças armadas do conflito imediato.** 
 
 ---
