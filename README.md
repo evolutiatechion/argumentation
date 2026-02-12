@@ -1,5 +1,11 @@
 ## Living in next time (Yerushalayim Shel Zahav - City Of David)
 
+---
+
+![Image](https://github.com/user-attachments/assets/2d83174c-2167-4a82-87d4-43aeba1b8956)
+
+**A Porta Dourada em Jerusalém. A Porta Dourada é o único portão oriental do Monte do Templo. Está vedada desde a Idade Média, em cumprimento de uma profecia. Na tradição judaica, este é o portão por onde o Messias entrará em Jerusalém, e sugere-se que Suleiman, o Magnífico, tenha selado a Porta Dourada para impedir a entrada do Messias.**
+
 ----
 
 ![Image](https://github.com/user-attachments/assets/a4b2812d-6f81-4e17-a7e6-7ea9ebb7fdc2)
