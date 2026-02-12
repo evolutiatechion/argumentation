@@ -60,7 +60,7 @@
 
 ---
 
-**Oséias 3:1-5 Adonai Elohim falou de novo comigo e disse: — Vá e ame uma mulher liberal, uma mulher que tem muitos namorados. Ame-a assim como eu amo o povo Israelita, embora eles adoram outros deuses e lhes ofereçam bolos de passas (Adultério). 2 Fui e pagei o dote pela a mulher por quinze barras de prata e cento e cinquenta quilos de cevada. 3 Eu disse: — Por muito tempo, você vai esperar por mim. Durante esse tempo continue a nomar livremente, não se entregue a um so namorado. E eu também esperarei por você.**
+**Oséias 3:1-5 Adonai Elohim falou de novo comigo e disse: — Vá e ame uma mulher liberal, uma mulher que tem muitos namorados. Ame-a assim como eu amo o povo Israelita, embora eles adoram outros deuses e lhes ofereçam bolos de passas (Adultério). 2 Fui e pagei o dote pela a mulher por quinze barras de prata e cento e cinquenta quilos de cevada. 3 Eu disse: — Por muito tempo, você vai esperar por mim. Durante esse tempo continue a namorar livremente, não se entregue a um só namorado. E eu também esperarei por você.**
 
 ---
 
