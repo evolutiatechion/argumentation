@@ -1,12 +1,14 @@
 ## Living in next time (Yerushalayim Shel Zahav - City Of David)
 
-**Davada = The Voice = O Verbo de Elohim, e eu o verbo me fiz carne e habitei entre os mortais**
-
 ---
 
 #### Isaías 52:7: How welcome on the mountain Are the footsteps of the herald Announcing happiness, Heralding good fortune, Announcing victory, Telling Zion, “Your God reigns!”
 
 #### Isaías 52:7 Celebra a chegada de mensageiros trazendo boas novas de paz, salvação e o retorno do reinado de Adonai a Sião. 
+
+---
+
+**Davada = The Voice = O Verbo de Elohim, e eu o verbo me fiz carne e habitei entre os mortais**
 
 ---
 
