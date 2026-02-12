@@ -24,7 +24,7 @@
 
 ---
 
-**Mariana Zaita (Garota Amarela) não tomava banho nua em público; havia uma divisória acima da casa, mas se o fizesse, não haveria problemas (Naturalista - Garota Azul)** 
+**Mariana Zaita (Garota Amarela) não tomava banho nua em público; havia uma divisória acima da casa, mas se o fizesse, não haveria problemas. (Naturalista - Garota Azul)** 
 
 ---
 
