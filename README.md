@@ -10,9 +10,15 @@
 
 ---
 
-**Assassinato de Urias e adultério com Mariana Zaita: Pura contradição de Ha-Satanás** 
+**Assassinato de Urias e adultério com Mariana Zaita: Pura contradição de Ha-Satanás.** 
 
-**Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan** 
+**Se isto fosse verdade eu davada e a mariana zaita teríamos sido contraditados por Ha-Satan.** 
+
+**Existem muitos texto tendencisos favorecidos por Hasatan**
+
+**Exemplo: Septuaginta e Vulgata Latina, faltam varias passagem do texto em Hebraico**
+
+**Como investigar este fato: Antigo Testamento poliglota**
 
 ---
 
