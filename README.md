@@ -6,6 +6,10 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/70252435-be36-4d73-96cd-426325e278bb)
+
+---
+
 **Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
 
 **Pergunta que não quer calar !!! Cade ???**
