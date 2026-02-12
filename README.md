@@ -10,6 +10,12 @@
 
 ---
 
+**Resposta: Os vestígios dos ensinamentos de NATO BANACH (como era conhecido no Dava Planet de Cristum Nato) corroboram a Bíblia Hebraica, o Tanach de Adão Risom ??? O que restou dos ensinamentos da determinação do Nato? A resposta é SIM.**
+
+**Nos ensinamentos do Nato, está escrito: Eu não vim para abolir a Torá e os mensageiros de Elohim, eu vim para cumprir e fazer cumprir a lei.**
+
+---
+
 **Não espere que eu me politize ou me militarize novamente nas forças armadas do conflito eminente.** 
 
 ---
