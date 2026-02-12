@@ -26,6 +26,8 @@
 
 **Obs3: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força;**
 
+**Example: genetically modified grains; clothing made from various types of fabrics (counterfeit). Cotton and Synthetic.**
+
 ---
 
 **Zona Azul (Área permitida para nudistas), Profeta Azul e Garota Azul**
