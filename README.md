@@ -18,7 +18,11 @@
 
 **Exemplo: Septuaginta e Vulgata Latina, faltam varias passagem do texto em Hebraico**
 
-**Como investigar este fato: Antigo Testamento poliglota**
+**Como investigar este fato: Antigo Testamento Poliglota (Hebraico - Grego - Ingles - Português)**
+
+---
+
+![Image](https://github.com/user-attachments/assets/4e93dd28-7fac-4175-a540-ad0c2d2679c4)
 
 ---
 
