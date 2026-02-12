@@ -62,7 +62,7 @@
 
 **- Relacionamento Fechado (Amarelo): Casamento, Noivo ou Namorado;**
 
-**- Relacionamento Aberto (Azul): Relacionamento Estável (Coabitação entre as partes)**
+**- Relacionamento Aberto (Azul): Relacionamento Estável (Coabitação entre as partes).**
 
 ---
 
@@ -70,7 +70,7 @@
 
 **Obs1: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido;**
 
-**Obs2: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força;**
+**Obs2: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força.**
 
 ---
 
