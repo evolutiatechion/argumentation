@@ -10,16 +10,6 @@
 
 ---
 
-**O aparecimento de um falso messias em israel antiga** (Yeshua HaMashiach ou qualquer outro nome que você queira)
-
----
-
-Daniel 9
-
-24 Setenta semanas estão determinadas sobre o teu povo, e sobre a tua santa cidade, para cessar a transgressão, e para dar fim aos pecados, e para expiar a iniquidade, e trazer a justiça eterna, e selar a visão e a profecia, e para ungir o Santíssimo.25 Sabe e entende: desde a saída da ordem para restaurar, e para edificar a Jerusalém, até ao Messias, o Príncipe, haverá sete semanas, e sessenta e duas semanas; as ruas e o muro se reedificarão, mas em tempos angustiosos.26 E depois das sessenta e duas semanas será cortado o Messias, mas não para si mesmo; e o povo do príncipe, que há de vir, destruirá a cidade e o santuário, e o seu fim será com uma inundação; e até ao fim haverá guerra; estão determinadas as assolações.27 E ele firmará aliança com muitos por uma semana; e na metade da semana fará cessar o sacrifício e a oblação; e sobre a asa das abominações virá o assolador, e isso até à consumação; e o que está determinado será derramado sobre o assolador. 
-
----
-
 **Ninguém pode morrer pelo pecado de outrem. !!!** 
 
 ---
@@ -33,6 +23,18 @@ Os pais não serão mortos em lugar dos filhos, nem os filhos, em lugar dos pais
 Ezequiel 18:20 ARA (Almeida Revista e Atualizada)
 
 A alma que pecar, essa morrerá; o filho não levará a iniquidade do pai, nem o pai, a iniquidade do filho; a justiça do justo ficará sobre ele, e a perversidade do perverso cairá sobre este.
+
+---
+
+**O aparecimento de um falso messias em israel antiga** 
+
+**(Yeshua HaMashiach ou qualquer outro nome que você queira)**
+
+---
+
+Daniel 9
+
+24 Setenta semanas estão determinadas sobre o teu povo, e sobre a tua santa cidade, para cessar a transgressão, e para dar fim aos pecados, e para expiar a iniquidade, e trazer a justiça eterna, e selar a visão e a profecia, e para ungir o Santíssimo.25 Sabe e entende: desde a saída da ordem para restaurar, e para edificar a Jerusalém, até ao Messias, o Príncipe, haverá sete semanas, e sessenta e duas semanas; as ruas e o muro se reedificarão, mas em tempos angustiosos.26 E depois das sessenta e duas semanas será cortado o Messias, mas não para si mesmo; e o povo do príncipe, que há de vir, destruirá a cidade e o santuário, e o seu fim será com uma inundação; e até ao fim haverá guerra; estão determinadas as assolações.27 E ele firmará aliança com muitos por uma semana; e na metade da semana fará cessar o sacrifício e a oblação; e sobre a asa das abominações virá o assolador, e isso até à consumação; e o que está determinado será derramado sobre o assolador. 
 
 ---
 
