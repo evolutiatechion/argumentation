@@ -30,7 +30,9 @@ A alma que pecar, essa morrerá; o filho não levará a iniquidade do pai, nem o
 
 **(Yeshua HaMashiach ou qualquer outro nome que você queira)**
 
-**Iesus Cristum File Dei, Jesus Cristo, Black Jesus, Zé Pilantra, Nego do Bore ou Cabaret ...**
+**Iesus Cristum File Dei, Jesus Cristo, Black Jesus**
+
+**Razinho Salvatori Victorium, Zé Pilantra, Nego do Bore ou Cabaret** 
 
 ---
 
