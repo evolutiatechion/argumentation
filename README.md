@@ -28,9 +28,9 @@
 
 ---
 
-## Os vestígios dos ensinamentos de NATO BANACH no Dava Planet, passado oral para outros planos
+## Vestígios dos ensinamentos de NATO BANACH, transmitidos oralmente para outros planos.
 
-![Image](https://github.com/user-attachments/assets/629b1f95-8b62-44f7-bf5d-8db847051590)
+![Image](https://github.com/user-attachments/assets/af188756-c623-4c56-a115-413f2a0904c0)
 
 ---
 
