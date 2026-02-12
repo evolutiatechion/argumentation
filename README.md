@@ -10,7 +10,7 @@
 
 ---
 
-**Ninguem pode morrer pelo pecado de ninguem!!!** 
+**Ninguém pode morrer pelo pecado de outrem. !!!** 
 
 ---
 
