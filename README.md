@@ -54,6 +54,8 @@
 
 ## A Regra da Distância (Vivendo Longe de Eretz Israel)
 
+**Bizu: Chama-se os levitas para almoçar, comprar aquela roupa nova para eles utilizar, etc...**
+
 **Deuteronômio 14:24-29 NVI (Nova Versão Internacional - Português) Se o local for longe demais e vocês tiverem sido abençoados pelo Adonai, o seu Elohim, e não puderem carregar o dízimo, pois o local escolhido pelo Adonai para ali pôr o seu nome é longe demais, troquem o dízimo por prata e levem a prata ao local que o Adonai, o seu Elohim, tiver escolhido. Com prata, comprem o que quiserem: bois, ovelhas, vinho ou outra bebida fermentada, ou qualquer outra coisa que desejarem. Então, com as suas famílias comam e alegrem‑se ali, na presença de Adonai, o seu Elohim. Nunca se esqueçam dos levitas que vivem nas cidades de vocês, pois eles não possuem propriedade nem herança próprias. ― Ao final de cada três anos, tragam todos os dízimos da colheita do terceiro ano, armazenando‑os nas cidades de vocês, para que os levitas, que não possuem propriedade nem herança, os estrangeiros, os órfãos e as viúvas que vivem nas cidades de vocês venham comer e saciar‑se, e para que o Adonai, o seu Elohim, os abençoe em todo o trabalho das mãos de vocês.**
 
 ---
