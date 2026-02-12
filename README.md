@@ -1,8 +1,8 @@
 ## Living in next time (Yerushalayim Shel Zahav - City Of David)
 
-**Pergunta que não quer calar !!! Cade??? Iesus Cristum File Dei, Jesus Cristo or Yeshua HaMaschia???**
+**- Eu Davada (Davada Melech Ha-Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
 
-**- Eu Davada (Davada Melech Ivrit) como eu mesmo voltei junto com profeta Halaila (Eliyahu)**
+**Pergunta que não quer calar !!! Cade??? Iesus Cristum File Dei, Jesus Cristo, Jesus Black ou Yeshua HaMaschia???**
 
 ---
 
