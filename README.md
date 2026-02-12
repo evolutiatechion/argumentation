@@ -16,6 +16,15 @@ https://www.sefaria.org/search?q=david&tab=text&tpathFilters=Tanakh&tvar=1&tsort
 
 ---
 
+Amos 9:11
+
+בַּיּ֣וֹם הַה֔וּא אָקִ֛ים אֶת־סֻכַּ֥ת דָּוִ֖יד הַנֹּפֶ֑לֶת וְגָדַרְתִּ֣י אֶת־פִּרְצֵיהֶ֗ן וַהֲרִֽסֹתָיו֙ אָקִ֔ים וּבְנִיתִ֖יהָ כִּימֵ֥י עוֹלָֽם׃ 
+
+In that day, I will set up again the fallen booth of David: I will mend its breaches and set up its ruins anew. I will build it firm as in the days of old,
+
+
+---
+
 Hosea 3:4-5
 
 כִּ֣י ׀ יָמִ֣ים רַבִּ֗ים יֵֽשְׁבוּ֙ בְּנֵ֣י יִשְׂרָאֵ֔ל אֵ֥ין מֶ֙לֶךְ֙ וְאֵ֣ין שָׂ֔ר וְאֵ֥ין זֶ֖בַח וְאֵ֣ין מַצֵּבָ֑ה וְאֵ֥ין אֵפ֖וֹד וּתְרָפִֽים׃ 
@@ -25,7 +34,6 @@ For the Israelites shall go a long time without king and without officials, with
 אַחַ֗ר יָשֻׁ֙בוּ֙ בְּנֵ֣י יִשְׂרָאֵ֔ל וּבִקְשׁוּ֙ אֶת־יְהֹוָ֣ה אֱלֹהֵיהֶ֔ם וְאֵ֖ת דָּוִ֣יד מַלְכָּ֑ם וּפָחֲד֧וּ אֶל־יְהֹוָ֛ה וְאֶל־טוּב֖וֹ בְּאַחֲרִ֥ית הַיָּמִֽים׃ {פ}
 
 Afterward, the Israelites will turn back and will seek the ETERNAL their God and David their king—and they will thrill over GOD and over God’s bounty in the days to come. 
-
 
 ---
 
