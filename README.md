@@ -2,11 +2,7 @@
 
 **- Psalm 37:25, 2:1 Why are the nations in an uproar? And why do the peoples mutter in vain? 2:2 The kings of the earth stand up, and the rulers take counsel together, against the Lord, and against His anointed: 2:3 'Let us break their bands asunder, and cast away their cords from us.' 2:4 He that sitteth in heaven laugheth, the L-rd hath them in derision. 2:5 Then will He speak unto them in His wrath, and affright them in His sore displeasure:  2:6 'Truly it is I that have established My king upon Zion, My holy mountain.' 2:7 I will tell of the decree: the Adonai said unto me: 'Thou art My son, this day have I begotten thee. 2:8 Ask of Me, and I will give the nations for thine inheritance, and the ends of the earth for thy possession. 2:9 Thou shalt break them with a rod of iron; thou shalt dash them in pieces like a potter's vessel.' 2:10 Now therefore, O ye kings, be wise; be admonished, ye judges of the earth. 2:11 Serve the Adonai with fear, and rejoice with trembling. 2:12 Do homage in purity, lest He be angry, and ye perish in the way, when suddenly His wrath is kindled. Happy are all they that take refuge in Him.**
 
----
-
 ## Davada as River Play - Living in Anywhere
-
----
 
 **- Psalm 37:25, written by King Davada, which says: "I was young and now I am old, yet I have never seen the righteous forsaken or their children begging bread." The passage emphasizes Adonai's faithfulness in providing for and sustaining those who live righteously and trust in Him.**
 
