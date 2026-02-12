@@ -6,7 +6,7 @@
 
 ---
 
-**O Grande Conflito dos Dias Atuais é Entre O Razinho e O Natinho**
+**O grande conflito de nosso tempo é entre Razinho e Natinho.**
 
 ---
 
