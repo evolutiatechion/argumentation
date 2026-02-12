@@ -6,7 +6,7 @@
 
 ---
 
-**Não esperem eu ser politizado ou novamente militarizado nos forcas armadas do conflito imediato.** 
+**Não esperem eu ser politizado ou novamente militarizado nas forças armadas do conflito imediato.** 
 
 ---
 
