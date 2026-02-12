@@ -4,6 +4,12 @@
 
 **Aviso aos desavisados:**
 
+**Busca de todas as passagens a respeito da minha volta (Davada Melech) e de Halaia Hanabi (Eliyahu Hanavi)**
+
+---
+
+https://www.sefaria.org/search?q=david&tab=text&tpathFilters=Tanakh&tvar=1&tsort=relevance
+
 ---
 
 **Não esperem eu ser politizado ou novamente militarizado nas forças armadas do conflito imediato.** 
