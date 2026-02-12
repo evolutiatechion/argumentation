@@ -10,17 +10,41 @@
 
 ---
 
+**Não acrescentareis e nem diminuirás**
+
+---
+
+Deuteronômio 4:2 Não acrescentareis à palavra que vos mando, nem diminuireis dela, para que guardeis os mandamentos do Senhor vosso Deus, que eu vos mando.
+
+---
+
+Deuteronômio 12:31 Assim não farás ao Senhor teu Deus; porque tudo o que é abominável ao Senhor, e que ele odeia, fizeram eles a seus deuses; pois até seus filhos e suas filhas queimaram no fogo aos seus deuses.32 Tudo o que eu te ordeno, observarás para fazer; nada lhe acrescentarás nem diminuirás.
+
+---
+
+**Provérbios 30 (Davada Beni Elohim - O Verbo de Adonai) - Halaia é o mensageiro de Adonai**
+
+⁴ Quem subiu ao céu e desceu? Quem encerrou os ventos nos seus punhos? Quem amarrou as águas numa roupa? Quem estabeleceu todas as extremidades da terra? Qual é o seu nome? E qual é o nome de seu filho, se é que o sabes?⁵ Toda a Palavra de Deus é pura; escudo é para os que confiam nele. ⁶ Nada acrescentes às suas palavras, para que não te repreenda e sejas achado mentiroso.
+
+Provérbios 30:4-6
+
+---
+
 **Ninguém pode morrer pelo pecado de outrem. !!!** 
 
 ---
 
 Deuteronômio 24:16 ARA (Almeida Revista e Atualizada)
 
+---
+
 Os pais não serão mortos em lugar dos filhos, nem os filhos, em lugar dos pais; cada qual será morto pelo seu pecado.
 
 ---
 
 Ezequiel 18:20 ARA (Almeida Revista e Atualizada)
+
+---
 
 A alma que pecar, essa morrerá; o filho não levará a iniquidade do pai, nem o pai, a iniquidade do filho; a justiça do justo ficará sobre ele, e a perversidade do perverso cairá sobre este.
 
