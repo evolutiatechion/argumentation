@@ -6,6 +6,10 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/9b62ec4e-0137-4d51-aee3-556e5149af4e)
+
+---
+
 **- Erase or not erase the opponents favored by the black devil, the very black devil, regarding Natinho's issue???**
 
 **- Erase everything, absolutely everything.**
