@@ -20,7 +20,7 @@
 
 ---
 
-**Mariana Zaira vivia na casa da família de Urias, os hititas; ele foi para a guerra como qualquer outro soldado israelita.** 
+**Mariana Zaita (Bati Sheva Eliakim - A sétima filha de Joaquim)  vivia na casa da família de Urias, os hititas; ele foi para a guerra como qualquer outro soldado israelita.** 
 
 ---
 
