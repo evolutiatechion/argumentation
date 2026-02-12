@@ -20,9 +20,9 @@
 
 ---
 
-**Obs0: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força.**
+**Obs0: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido.**
 
-**Obs1: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido.**
+**Obs1: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força.**
 
 ---
 
