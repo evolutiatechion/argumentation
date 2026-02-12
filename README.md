@@ -20,9 +20,11 @@
 
 ---
 
-**Obs0: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido.**
+**Obs0: Levítico 19:19 — Guarde os meus estatutos. Não misture as espécies. Não plante sementes de duas espécies em seu campo, nem use roupas de dois tipos diferentes de tecido na mesma fabricação.**
 
-**Obs1: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força.**
+**Obs2: Livre arbítrio, Conservador (Amarelo) ou Liberal (Azul), juntar-se ao lado vermelho da força é proibido;**
+
+**Obs3: Adultério ou Traição: É proibido ao lado verde da força (amarelo ou azul), unir-se ao lado vermelho da força;**
 
 ---
 
