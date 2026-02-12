@@ -40,7 +40,9 @@
 
 ---
 
-## O sustento dos sacerdotes da tribo de levi (Halaia Habi - Vivendo em Eretz Israel)
+## O sustento dos sacerdotes da tribo de levi 
+
+**Halaia Habi (O Profeta Elias) - Vivendo em Eretz Israel**
 
 ---
 
@@ -52,7 +54,9 @@
 
 ---
 
-## A Regra da Distância (Halaia Habi - Vivendo Longe de Eretz Israel)
+## A Regra da Distância 
+
+**Halaia Habi - Vivendo Longe de Eretz Israel**
 
 ---
 
