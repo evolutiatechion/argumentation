@@ -24,6 +24,10 @@
 
 ---
 
+**Mariana Zaita não tomava banho nua em público; havia uma divisória acima da casa, mas se o fizesse, não haveria problemas (Naturalista - Garota Azul)** 
+
+---
+
 ![Image](https://github.com/user-attachments/assets/4e93dd28-7fac-4175-a540-ad0c2d2679c4)
 
 ---
