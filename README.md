@@ -44,7 +44,7 @@
 
 ---
 
-**Números 18:8-32 O Adonai Elohim disse a Arão:  Agora estou lhe dando todas as ofertas especiais que forem trazidas a mim e que não forem queimadas como sacrifício. Eu dou essas ofertas a você e aos seus descendentes como aquela parte a que vocês têm direito para sempre. 9 Das coisas mais sagradas e que não forem queimadas você receberá o seguinte: as ofertas de cereais, as ofertas para tirar pecados e as ofertas para tirar a culpa. Tudo o que for trazido a mim como oferta sagrada pertence a você e aos seus filhos. 10 Você comerá essas coisas num lugar sagrado, e somente os homens poderão comê-las. E serão uma coisa sagrada para você...**
+**Números 18:8-32 O Adonai Elohim disse a Arão: Agora estou lhe dando todas as ofertas especiais que forem trazidas a mim e que não forem queimadas como sacrifício. Eu dou essas ofertas a você e aos seus descendentes como aquela parte a que vocês têm direito para sempre. 9 Das coisas mais sagradas e que não forem queimadas você receberá o seguinte: as ofertas de cereais, as ofertas para tirar pecados e as ofertas para tirar a culpa. Tudo o que for trazido a mim como oferta sagrada pertence a você e aos seus filhos. 10 Você comerá essas coisas num lugar sagrado, e somente os homens poderão comê-las. E serão uma coisa sagrada para você...**
 
 ---
 
@@ -54,7 +54,7 @@
 
 ## A Regra da Distância 
 
-**Deuteronômio 14:24-29 NVI (Nova Versão Internacional - Português) Se o local for longe demais e vocês tiverem sido abençoados pelo SENHOR, o seu Deus, e não puderem carregar o dízimo, pois o local escolhido pelo SENHOR para ali pôr o seu nome é longe demais, troquem o dízimo por prata e levem a prata ao local que o Adonai, o seu Elohim, tiver escolhido. Com prata, comprem o que quiserem: bois, ovelhas, vinho ou outra bebida fermentada, ou qualquer outra coisa que desejarem. Então, com as suas famílias comam e alegrem‑se ali, na presença de Adonai, o seu Elohim. Nunca se esqueçam dos levitas que vivem nas cidades de vocês, pois eles não possuem propriedade nem herança próprias. ― Ao final de cada três anos, tragam todos os dízimos da colheita do terceiro ano, armazenando‑os nas cidades de vocês, para que os levitas, que não possuem propriedade nem herança, os estrangeiros, os órfãos e as viúvas que vivem nas cidades de vocês venham comer e saciar‑se, e para que o SENHOR, o seu Deus, os abençoe em todo o trabalho das mãos de vocês.**
+**Deuteronômio 14:24-29 NVI (Nova Versão Internacional - Português) Se o local for longe demais e vocês tiverem sido abençoados pelo Adonai, o seu Elohim, e não puderem carregar o dízimo, pois o local escolhido pelo Adonai para ali pôr o seu nome é longe demais, troquem o dízimo por prata e levem a prata ao local que o Adonai, o seu Elohim, tiver escolhido. Com prata, comprem o que quiserem: bois, ovelhas, vinho ou outra bebida fermentada, ou qualquer outra coisa que desejarem. Então, com as suas famílias comam e alegrem‑se ali, na presença de Adonai, o seu Elohim. Nunca se esqueçam dos levitas que vivem nas cidades de vocês, pois eles não possuem propriedade nem herança próprias. ― Ao final de cada três anos, tragam todos os dízimos da colheita do terceiro ano, armazenando‑os nas cidades de vocês, para que os levitas, que não possuem propriedade nem herança, os estrangeiros, os órfãos e as viúvas que vivem nas cidades de vocês venham comer e saciar‑se, e para que o Adonai, o seu Elohim, os abençoe em todo o trabalho das mãos de vocês.**
 
 ---
 
