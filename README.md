@@ -14,7 +14,7 @@
 
 ---
 
-Deuteronômio 4:2 Não acrescentareis à palavra que vos mando, nem diminuireis dela, para que guardeis os mandamentos do Senhor vosso Deus, que eu vos mando.
+Deuteronômio 4:2 Não acrescentareis à palavra que vos mando, nem diminuireis dela, para que guardeis os mandamentos do Adonai vosso Elohim, que eu vos mando.
 
 ---
 
